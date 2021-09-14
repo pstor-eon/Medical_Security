@@ -5,3 +5,11 @@ When I entered college, my goal at the time was to become a medical security exp
 I became interested in medical security because I was a high school student and I wrote a medical-related article on my blog in 2019. I don't know if many people are not as interested in health care or if other fields are good, but I have a lot of power to study alone. Or I want to do research, but I think there are a lot of data in foreign schools. I think sharing like this will make a lot of information and medical safer.
 
 If you are also interested in medical security, please study and share like me.
+
+### Argument Paper
+
+### Book
+
+### Resources
+
+### News
